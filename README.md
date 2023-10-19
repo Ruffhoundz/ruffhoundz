@@ -5,7 +5,7 @@
 <img src= "https://pixel.crd.co/assets/images/gallery05/fbe50b3d.png?v=6c952962"
   </p>
 </br> 
-# <a href= "https://dayshift-at-freddys.fandom.com/wiki/Jack_Kennedy"> Jack</a> / <a href= "https://mandela-catalogue.fandom.com/wiki/Mark_Heathcliff">Mark</a> !! <img src= "https://pixel.crd.co/assets/images/gallery01/af5dfa9a.gif?v=6c952962"> <i>He ,, <a href= "https://en.pronouns.page/@RuffHoundz">Bite</a> ,, Bark</i></s>
+# <a href= "https://dayshift-at-freddys.fandom.com/wiki/Jack_Kennedy"> Jack</a> / <a href= "https://mandela-catalogue.fandom.com/wiki/Mark_Heathcliff">Mark</a> !! <img src= "https://pixel.crd.co/assets/images/gallery01/af5dfa9a.gif?v=6c952962"> <i>He ,, <a href= "https://en.pronouns.page/@RuffHoundz">Bite</a> ,, Bark</i></s> #
 </br>
 <img src= "https://pixel.crd.co/assets/images/gallery01/a4a25dd3.gif?v=6c952962"> C + H <i>always!</i> ! <s>usually</s> <b>off</b>tab, pls <b>w2i</b>!! <img src= "https://pixel.crd.co/assets/images/gallery01/0be0f975.gif?v=6c952962">
 </br>
